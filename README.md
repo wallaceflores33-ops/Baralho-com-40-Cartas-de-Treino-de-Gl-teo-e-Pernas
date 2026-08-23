@@ -1,0 +1,1 @@
+# Baralho-com-40-Cartas-de-Treino-de-Gl-teo-e-Pernas
